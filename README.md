@@ -5,4 +5,4 @@ My name is Arielle; I'm a graduate student in biological anthropology.
 
 My favorite superhero is Spiderman.
 
-Unpopular opinion: Tom Holand is the best Spiderman.
+Unpopular opinion: Tom Holland is the best Spiderman.
